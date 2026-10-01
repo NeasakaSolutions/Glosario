@@ -1,0 +1,1 @@
+Corzo va a reprobar el cuatrimestre
